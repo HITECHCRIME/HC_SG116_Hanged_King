@@ -1,13 +1,14 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST - TITLE
+# MOTHNODE - HANGED KING
 
 **Listen now:** x
 
 ## Project Data
 
 Description.
-
+https://www.youtube.com/watch?v=R5f6z9UwtZs
+FREE Travis Scott x NF Type Beat 2019 // regrets // Prod Instinct
 
 **Title:**  / **Featuring:** 
 
@@ -16,7 +17,31 @@ Description.
 ## Lyrics
 
 ```
+"a god-shaped hole
+the barren desolation (role of the damned in) of a fallen 
+and failed creation ...
 
+you see the light of the long dead stars
+your existence is nothing 
+but an echo of a dying god 
+
+you keep'em rites in a scroll long forgotten  
+your persistence as the keys
+to pry widee open eyes in the fodder
+
+dulled conscience and free will
+alikeee (arise and abide)
+nothing left to discover
+so arise and
+abide to the ancient process
+
+arise and abide yeah
+arise and abide yeah
+arise and abide yeah
+
+scream the unseen converges 
+surrounds you 
+and it tightens like a noose"
 
 ```
 
