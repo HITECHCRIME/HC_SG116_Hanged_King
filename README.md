@@ -22,7 +22,7 @@ i rise and abide yeah
 god-shaped hole, 
 the barren role of all the damned 
 in a fallen and failed creation 
-for all the white - you see the light 
+(for all the) all white you see the light 
 of the long dead stars 
 your existence is nothing 
 but an echo of a dying god 
