@@ -19,8 +19,7 @@ FREE Travis Scott x NF Type Beat 2019 // regrets // Prod Instinct
 ```
 "a god-shaped hole
 the barren role of all the damned 
-in a fallen and failed creation ...
-
+in a fallen and failed creation for all
 you see the light of the long dead stars
 your existence is nothing 
 but an echo of a dying god 
