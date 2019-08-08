@@ -18,7 +18,7 @@ FREE Travis Scott x NF Type Beat 2019 // regrets // Prod Instinct
 
 ```
 "a god-shaped hole
-the barren role of the damned 
+the barren role of all the damned 
 in a fallen and failed creation ...
 
 you see the light of the long dead stars
@@ -34,6 +34,7 @@ alikeee (arise and abide)
 nothing left to discover
 so arise and
 abide to the ancient process
+abide to the ancient order
 
 arise and abide yeah
 arise and abide yeah
