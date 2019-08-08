@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE - HANGED KING
+# MOTHNODE - HANGED COURT
 
 **Listen now:** x
 
@@ -19,32 +19,29 @@ FREE Travis Scott x NF Type Beat 2019 // regrets // Prod Instinct
 ```
 i rise and abide yeah
 i rise and abide yeah
-god-shaped hole, 
-the barren role of all the damned 
-in a fallen and failed creation 
-(for all the) all white you see the light 
-of the long dead stars 
-your existence is nothing 
-but an echo of a dying god 
 
-i keep'em rites in the scrolls 
-long forgotten my persistence 
-as the keys to pry wide open 
-eyes in the fodder dulled 
-conscience and free will
-alike arise and abide
-nothing left to discover
-so i rise and
-abide to the ancient process
+god-shaped hole, the barren role of all the damned in a fallen 
+and failed creation all white you see the light of the long dead stars (for all the) 
+your existence is nothing but an echo of a dying god
+i keep'em rites in the scrolls long forgotten my persistence 
+as the keys to pry wide open eyes in the fodder dulled 
+conscience and free will alike arise and abide nothing left to discover
+
+so i rise and abide to the ancient process
 we the hanged kings and queens
-arise and
-abide to the ancient order
+arise and abide to the ancient order
+we the hanged kings and queens
 
 arise and abide yeah
 arise and abide yeah
 arise and abide yeah
 
-
+god-shaped hole, the barren role of all the damned in a fallen 
+and failed creation all white you see the light of the long dead stars (for all the) 
+your existence is nothing but an echo of a dying god
+i keep'em rites in the scrolls long forgotten my persistence 
+as the keys to pry wide open eyes in the fodder dulled 
+conscience and free will alike arise and abide nothing left to discover
 
 "a god-shaped hole
 the barren desolation (role of the damned in) of a fallen 
