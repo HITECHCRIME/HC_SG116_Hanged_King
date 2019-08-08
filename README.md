@@ -17,22 +17,26 @@ FREE Travis Scott x NF Type Beat 2019 // regrets // Prod Instinct
 ## Lyrics
 
 ```
-"a god-shaped hole
-the barren role of all the damned 
-in a fallen and failed creation for all
-you see the light of the long dead stars
-your existence is nothing 
+arise and abide yeah
+arise and abide yeah
+
+"a god-shaped hole, the barren role 
+of all the damned in a fallen 
+and failed creation ----for all the white
+you see the light of the long dead 
+stars your existence is nothing 
 but an echo of a dying god 
 
 you keep'em rites in the scrolls long forgotten  
 your persistence as the keys
 to pry widee open eyes in the fodder
-
 dulled conscience and free will
 alikeee (arise and abide)
 nothing left to discover
+
 so arise and
 abide to the ancient process
+so arise and
 abide to the ancient order
 
 arise and abide yeah
