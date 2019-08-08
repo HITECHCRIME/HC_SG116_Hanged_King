@@ -63,6 +63,8 @@ abide to the ancient process
 arise and abide yeah
 arise and abide yeah
 arise and abide yeah
+hanged king
+oh hanged king
 
 scream the unseen converges 
 surrounds you 
