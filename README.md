@@ -36,8 +36,10 @@ nothing left to discover
 
 so arise and
 abide to the ancient process
-so arise and
+we the hanged kings and queens
+arise and
 abide to the ancient order
+
 
 arise and abide yeah
 arise and abide yeah
