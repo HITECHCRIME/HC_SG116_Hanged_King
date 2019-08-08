@@ -20,7 +20,7 @@ FREE Travis Scott x NF Type Beat 2019 // regrets // Prod Instinct
 i rise and abide yeah
 i rise and abide yeah
 
-god-shaped hole, the barren role of all the damned in a fallen 
+god-shaped hole, the barren role of (the hanged court)-> (all the damned) in a fallen 
 and failed creation all white you see the light of the long dead stars (for all the) 
 your existence is nothing but an echo of a dying god
 i keep'em rites in the scrolls long forgotten my persistence 
