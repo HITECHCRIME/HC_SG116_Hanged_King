@@ -43,6 +43,8 @@ i keep'em rites in the scrolls long forgotten my persistence
 as the keys to pry wide open eyes in the fodder dulled 
 conscience and free will alike arise and abide nothing left to discover
 
+
+
 "a god-shaped hole
 the barren desolation (role of the damned in) of a fallen 
 and failed creation ...
