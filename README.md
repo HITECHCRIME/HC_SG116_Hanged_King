@@ -73,6 +73,8 @@ scream the unseen converges
 surrounds you 
 and it tightens like a noose"
 
+omega omega?
+
 ```
 
 ## Lyrics Production
