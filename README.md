@@ -93,4 +93,38 @@ omega omega?
 
 ## Notes
 
+/// MOTHNODE_ Hanged King [Directive Protocol Ω]
+
+/// FULL SONG PROTOTYPE ]|
+/// "so i rise and abide to the ancient process, we the hanged kings and queens arise and abide to the ancient order"
+.
+/// MICROLABEL_ @hitechcrime /// USER_ @mothnode
+/// TARGET_ HC_SG116_HANGED_KING
+.
+/// STATUS_ FULL SONG PROTOTYPE
+/// LISTEN TO REGULAR SONG DEV
+/// MORE ACCESS @mothnode
+/// TELEGRAM LIVE OPS_ t.me/hitechops
+.
+/// LYRICS
+i rise and abide yeah x2
+god-shaped hole, the barren role of the damned in a fallen
+and failed creation all white you see the light of the long dead stars
+your existence is nothing but an echo of a dying god
+you keep'em rites in the scrolls long forgotten my persistence
+as the keys to pry wide open eyes in the fodder dulled
+conscience and free will alike i rise and abide nothing left to discover
+so i rise and abide to the ancient process
+we the hanged kings and queens
+arise and abide to the ancient order
+we the hanged kings and queens
+arise and abide yeah
+arise and abide yeah
+god-shaped hole, the barren role of the damned in a fallen
+and failed creation all white you see the light of the long dead stars
+your existence is nothing but an echo of a dying god
+you keep'em rites in the scrolls long forgotten my persistence
+as the keys to pry wide open eyes in the fodder dulled
+conscience and free will alike i rise and abide nothing left to discover . /// NODE STEMS #trapmusic #darktrap #trapstar #trapcartel #humanedge #hitechcrime #futurap #chantrap #raw #irl #kaleidoscope #visuals #mirror #audiovisual #experiments #trap #trap #rap #hiphop
+
 ## Music Video
